@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TrittLips
+- 👀 I’m interested in souls
+- 🌱 I’m currently learning stuff in school
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me: my email: lildjwhatwhat@icloud.com
+- 
